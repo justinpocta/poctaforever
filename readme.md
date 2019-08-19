@@ -1,9 +1,14 @@
 Justin + Julie Pocta
 ## Hello from Brooklyn, New York!
 
-We're figuring this space out, but may add pics and stuff later. Reach us at [hi@poctaforever.com](mailto:hi@poctaforever.com)
+Reach us at [hi@poctaforever.com](mailto:hi@poctaforever.com)
 
 <img src="26709229451_6198bc0803_l.jpg">
+
+View [Our Wedding Pics](https://photos.app.goo.gl/xYTPKs3BnCnCrjFY6)
+View [Our Wedding Photobooth](https://photos.app.goo.gl/BndSPXAYDXJ11J3U9)
+/Major thanks to [Jared Hernandez](http://jaredrey.com/) for use of his awesome [http://www.rockboxbooth.com/](Rockbox photobooth)./
+
 
 Julie on [Twitter](https://twitter.com/juliepocta) + [Instagram](https://instagram.com/julieforever)
 
