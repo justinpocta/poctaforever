@@ -9,9 +9,9 @@ View Our [Wedding Pics](https://photos.app.goo.gl/xYTPKs3BnCnCrjFY6) + [Wedding 
 
 Major thanks to [Jared Hernandez](http://jaredrey.com/) for use of his awesome [Rockbox photobooth](http://www.rockboxbooth.com/).
 
-Julie on [Twitter](https://twitter.com/juliepocta) + [Instagram](https://instagram.com/julieforever)
+Julie on [Twitter](https://twitter.com/juliepocta) + [Personal Instagram](https://instagram.com/julieforever) + [Work Instagram](https://instagram.com/juliepocta)
 
-Justin on [Twitter](https://twitter.com/justinpocta) + [Instagram](https://instagram.com/justinpocta)
+Justin on [Twitter](https://twitter.com/justinpocta) + [Personal Instagram](https://instagram.com/justinpocta) + [Work Instagram](https://instagram.com/juxtinp)
 
 
 
