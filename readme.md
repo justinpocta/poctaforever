@@ -1,5 +1,5 @@
 Justin + Julie Pocta
-## Hello from Brooklyn, New York!
+## Hello from Dallas, TX!
 
 Reach us at [hi@poctaforever.com](mailto:hi@poctaforever.com)
 
