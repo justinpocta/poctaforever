@@ -1,7 +1,6 @@
-Justin + Julie Pocta
 ## Hello from Dallas, TX!
 
-Reach us at [hi@poctaforever.com](mailto:hi@poctaforever.com)
+This is the homepage of Justin and Julie Pocta. You can reach us at [hi@poctaforever.com](mailto:hi@poctaforever.com)
 
 <img src="26709229451_6198bc0803_l.jpg">
 
