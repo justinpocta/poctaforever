@@ -12,9 +12,8 @@ Julie on [Twitter](https://twitter.com/juliepocta) + [Personal Instagram](https:
 
 Justin on [Twitter](https://twitter.com/justinpocta) + [Personal Instagram](https://instagram.com/justinpocta) + [Work Instagram](https://instagram.com/juxtinp)
 
+---
 
+Thanks for Visiting!
 
-
-
-
-
+<br>
